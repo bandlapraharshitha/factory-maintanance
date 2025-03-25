@@ -137,9 +137,9 @@ text
 
 For any queries or collaboration opportunities, feel free to reach out:
 
-- **Name**: Devansh Singh  
-- **Email**: [devanshsingh1974@gmail.com](mailto:devanshsingh1974@gmail.com)  
-- **LinkedIn**: [Devansh Singh](https://www.linkedin.com/in/devanshsingh2006)  
+- **Name**: Praharshitha Bandla
+- **Email**: [praharshitha35@gmail.com](mailto:praharshitha35@gmail.com)  
+- **LinkedIn**: [Praharshitha Bandla](https://www.linkedin.com/in/praharshithabandla2006)  
 
 ---
 
